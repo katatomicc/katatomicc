@@ -13,4 +13,3 @@ also i say some weird stuff just know im not serious Ok? Ok Son?
 
 FRIENDS can feel free to add me on discord: @randyx
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=katatomicc
