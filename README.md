@@ -14,4 +14,4 @@ also i say some weird stuff just know im not serious Ok? Ok Son?
 FRIENDS can feel free to add me on discord: @randyx
 
 
-https://github.com/katatomicc/my-profile-views-counter
+
