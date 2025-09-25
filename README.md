@@ -8,7 +8,7 @@ im kinda dry to new people, i just have horrible social skills its nothing perso
 
 basic dni, proship and darkshippers especially (i had a few follow me in the past) 
 
-i use he/him, but i won't really get mad if you call me anything else, ill just be confused
+i use he/him, but i won't really get mad if you call me anything else. 
 
 also i say some weird stuff just know im not serious Ok? Ok Son?
 ![20250913_073802](https://github.com/user-attachments/assets/aac41df0-fb22-414c-b4fd-814ced70ef15)
