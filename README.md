@@ -2,7 +2,7 @@
 
 hello im randy, im kind of a loser and A weirdo
 
-i like undertale, deltarune, ultrakill, dead cells, grace, bad things, block tales, die of death, off, bad end theater, fallout series (specifically 4 and new vegas) skyrim, smiling friends, arcane, and some other stuff
+i like undertale, deltarune, ultrakill, dead cells, grace, bad things, block tales, die of death, gasa4, hjd, off, bad end theater, fallout series (specifically 4 and new vegas) skyrim, smiling friends, arcane, and some other stuff
 
 im kinda dry to people. new people especially, i just have horrible social skills its nothing personal really!
 
