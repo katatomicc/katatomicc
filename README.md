@@ -11,6 +11,6 @@ basic dni, proship and darkshippers especially (i had a few follow me in the pas
 i use he/him, but i won't really get mad if you call me anything else. 
 
 also i say some weird stuff just know im not serious Ok? Ok Son?
-<img width="1920" height="1080" alt="Tumblr_l_248828305225753" src="https://github.com/user-attachments/assets/2f560b9e-9c68-4d14-b6eb-74c02648db09" />
+![c9cfb4370098a2109ef7777e72d2b2c6](https://github.com/user-attachments/assets/b6f81480-eb74-409c-89df-52bca5a252e7)
 
 FRIENDS can feel free to add me on discord: @randyx
