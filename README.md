@@ -1,6 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=katatomicc)
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  <img width="150" height="20" alt="1000018866" src="https://github.com/user-attachments/assets/2ae7d3e1-8e97-40de-9729-8ce186ef691c" />
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ![1000018875](https://github.com/user-attachments/assets/5ba58a64-bfc6-4419-8c62-569a96bfe565)
+
 
 wip
 
