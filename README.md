@@ -13,3 +13,6 @@ my main interests right now are die of death and ultrakill, but i am also into a
 have not been in too good of a mental state as of late, strangers iwec 
 
 ill make this prettier eventually..🥹
+
+<img width="1001" height="575" alt="1000019189" src="https://github.com/user-attachments/assets/0e5366e2-53ec-467a-a320-1f59e74198d7" />
+
