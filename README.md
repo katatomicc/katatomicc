@@ -3,7 +3,7 @@
 
 ok screw it my readme is gonna be ugly af
 
-im randy, or jean. my biggest interests right now are die of death and ultrakill, but i like many other things, a list of them can be found [here](rentry.co/buttsaucer)
+im randy, or jean. my biggest interests right now are die of death and ultrakill, but i like many other things, a list of them can be found [here](https://rentry.co/buttsaucer)
 
 i use it/its and he/him primarily, (anything other than she/her is fine, though) preferred pronouns fluctuate based on mood
 
