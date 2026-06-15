@@ -2,19 +2,23 @@
 
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![](https://komarev.com/ghpvc/?username=katatomicc&color=DFE7AE&label=ᯓ‎𝄞‎ )
- 
-very long bfyi get ready 💔
+ big wip be patient withme pls
+<details>
+ <summary>about me! ^^ </summary>
+randy/jean 𖦹 it/its or he/him 𖦹 17 𖦹 usually in utdr, under/around bakery, or in random spots around the map 𖦹 w2i is encouraged because im afk a lot
+</details>
 
-hi im randy, or jean. for more info abt me refer to my links, this is only for pt and basic info.
+<details>
+<summary>bfyi</summary>
+i make very weird or offensive jokes on here, its best to note that absolutely nothing i say is serious 𖦹 i may be dry to new people because i. seriously lack social skills. please be patient with me
+</details>
 
-i use it/its and he/him interchangeably, but any pronouns other than she/her is fine. 
+<details>
+<summary>fandoms</summary>
+die of death, ultrakill (my two main ones) utdr, postal, block tales, the moon i rot behind, bad things (fandom dniuid or dniuf), dead cells, fallout, OFF and a lot more fandoms. feel free to ask me what else i like!
+</details>
 
-i make very weird jokes on here, please note that absolutely nothing i say is serious (feel like this should be obvious already) and i usually only make these jokes towards my friends. refer to my strawpage for a link to my dni
-
-my main interests right now are die of death and ultrakill, but i like many other things, a list of them can be found [here](https://rentry.co/buttsaucer)
-
-im usually found in the utdr area despite not being in the fandom anymore, but you can also find me in random spots around the map! 
-
-always feel free to int unless my name says dni or something, i may be dry to you but i love meeting new people! especially roblox fans
-
-please do not copy my skins, i work very hard on my pixels...Ok?
+<details>
+<summary>dni</summary>
+-14, anyone under the prejudice umbrella, pro/darkship, extended dni can be found on a link on my strawpage
+</details>
