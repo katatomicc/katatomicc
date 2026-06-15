@@ -4,7 +4,14 @@
 
 </div>
 
-big wip
+<div align="center">
+
+<img width="300" height="40" alt="1000019481" src="https://github.com/user-attachments/assets/fbdcb200-c4cd-4c51-a0ff-a319531c45ff" />
+
+
+</div>
+
+WIP! 
 
 ---
 
@@ -22,23 +29,52 @@ big wip
 
 </div>
 
-
+<div align="center">
+ 
 <details>
- <summary>about me! ^^ </summary>
-randy/jean 𖦹 it/its or he/him 𖦹 17 𖦹 usually in utdr, under/around bakery, or in random spots around the map 𖦹 w2i is encouraged because im afk a lot
+<summary> for ponytown! ^^ </summary>
+im usually found in utdr, under/around bakery, or in random spots around the map 𖦹 w2i is encouraged because im afk a lot 𖦹 i usually wear die of death, ultrakill, block tales, or deltarune skins!
 </details>
 
+</div>
+
+<div align="center">
+
 <details>
-<summary>bfyi</summary>
+ <summary>bfyi</summary>
 i make very weird or offensive jokes on here, its best to note that absolutely nothing i say is serious 𖦹 i may be dry to new people because i. seriously lack social skills. please be patient with me
 </details>
+
+</div>
+
+<div align="center">
 
 <details>
 <summary>fandoms</summary>
 die of death, ultrakill (my two main ones) utdr, postal, block tales, the moon i rot behind, bad things (fandom dniuid or dniuf), dead cells, fallout, OFF and a lot more fandoms. feel free to ask me what else i like!
 </details>
 
+</div>
+
+<div align="center">
+
 <details>
 <summary>dni</summary>
 -14, anyone under the prejudice umbrella, pro/darkship, extended dni can be found on a link on my strawpage
 </details>
+
+</div>
+
+<div align="center">
+
+<img width="800" height="75" alt="1000019476" src="https://github.com/user-attachments/assets/40ea1d40-444f-4721-a7ea-beeb4da20ccf" />
+
+</div>
+
+---
+<div align="center">
+
+<img width="300" height="40" alt="1000019480" src="https://github.com/user-attachments/assets/65e73cd1-6084-49cb-94f9-421eca0f27e2" />
+
+
+</div>
