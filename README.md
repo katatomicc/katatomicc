@@ -3,6 +3,10 @@
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![](https://komarev.com/ghpvc/?username=katatomicc&color=DFE7AE&label=ᯓ‎𝄞‎ )
  big wip be patient withme pls
+
+<img width="800" height="130" alt="1000019476" src="https://github.com/user-attachments/assets/40ea1d40-444f-4721-a7ea-beeb4da20ccf" />
+
+
 <details>
  <summary>about me! ^^ </summary>
 randy/jean 𖦹 it/its or he/him 𖦹 17 𖦹 usually in utdr, under/around bakery, or in random spots around the map 𖦹 w2i is encouraged because im afk a lot
