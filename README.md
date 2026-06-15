@@ -1,6 +1,9 @@
 ![](https://komarev.com/ghpvc/?username=katatomicc&color=2aa220&label=PATIENTS_^-^‎)
+<div align="center">
 
 <img width="400" height="200" alt="1000019477" src="https://github.com/user-attachments/assets/649481a5-aa26-471f-8193-f43449693dbb" />
+
+</div>
 
 
 
