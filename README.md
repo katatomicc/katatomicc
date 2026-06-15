@@ -31,7 +31,11 @@
 
 ---
 
+<div align="center">
+
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Chelsea+Market&duration=3500&pause=200&color=B6F7A3&center=true&width=435&lines=dude+im+on+cooldown)](https://git.io/typing-svg)
+
+</div>
 
 <div align="center">
 
