@@ -1,5 +1,8 @@
-![](https://komarev.com/ghpvc/?username=katatomicc&color=DFE7AE&label=ᯓ‎𝄞‎ )
- big wip be patient withme pls
+![](https://komarev.com/ghpvc/?username=katatomicc&color=2aa220&label=PATIENTS_^-^‎)
+
+<img width="400" height="200" alt="1000019477" src="https://github.com/user-attachments/assets/649481a5-aa26-471f-8193-f43449693dbb" />
+
+
 
 <img width="800" height="75" alt="1000019476" src="https://github.com/user-attachments/assets/40ea1d40-444f-4721-a7ea-beeb4da20ccf" />
 
