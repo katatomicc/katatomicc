@@ -1,7 +1,4 @@
-
-
-
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![](https://komarev.com/ghpvc/?username=katatomicc&color=DFE7AE&label=ᯓ‎𝄞‎ )
+![](https://komarev.com/ghpvc/?username=katatomicc&color=DFE7AE&label=ᯓ‎𝄞‎ )
  big wip be patient withme pls
 
 <img width="800" height="75" alt="1000019476" src="https://github.com/user-attachments/assets/40ea1d40-444f-4721-a7ea-beeb4da20ccf" />
