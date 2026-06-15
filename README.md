@@ -4,8 +4,6 @@
 
 </div>
 
-wip
-
 <div align="center">
 
 <img width="300" height="40" alt="1000019481" src="https://github.com/user-attachments/assets/fbdcb200-c4cd-4c51-a0ff-a319531c45ff" />
@@ -32,6 +30,8 @@ wip
  </div>
 
 ---
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Chelsea+Market&duration=3500&pause=200&color=B6F7A3&center=true&width=435&lines=dude+im+on+cooldown)](https://git.io/typing-svg)
 
 <div align="center">
 
