@@ -4,6 +4,8 @@
 
 </div>
 
+wip
+
 <div align="center">
 
 <img width="300" height="40" alt="1000019481" src="https://github.com/user-attachments/assets/fbdcb200-c4cd-4c51-a0ff-a319531c45ff" />
@@ -11,7 +13,23 @@
 
 </div>
 
-WIP! 
+<div align="center">
+
+ 𝘙𝘈𝘕𝘋𝘠  . 𝘫𝘦𝘢𝘯
+
+ </div>
+
+ <div align="center">
+
+ 𝘪𝘵/𝘪𝘵𝘴 𝘰𝘳 𝘩𝘦/𝘩𝘪𝘮. 𝘱𝘳𝘦𝘧𝘦𝘳𝘳𝘦𝘥 𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘴 𝘢𝘭𝘵𝘦𝘳𝘯𝘢𝘵𝘦 𝘣𝘢𝘴𝘦𝘥 𝘰𝘯 𝘮𝘰𝘰𝘥 
+
+ </div>
+
+ <div align="center">
+
+ 17 . 𝘐𝘞𝘌𝘊 𝘶𝘯𝘭𝘦𝘴𝘴 𝘧𝘳𝘪𝘦𝘯𝘥
+
+ </div>
 
 ---
 
