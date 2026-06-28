@@ -26,6 +26,9 @@
  
 </details>
 if youre a friend, feel free to ask for my discord!
+
+
+‎ 
 <img width="200" height="101" alt="1000019783" src="https://github.com/user-attachments/assets/02aa7841-d529-48f3-a8cd-4b542101e7db" />
 
 
