@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=katatomicc&color=c24920&label=☏)
+![](https://komarev.com/ghpvc/?username=katatomicc&color=FED3ED&label=☏)
 
 </div>
 
@@ -8,7 +8,8 @@
 
 <div align="center">
 
-![1000019813](https://github.com/user-attachments/assets/581e3a3e-4953-4489-9a60-d7defb9152df)
+<img width="300" height="300" alt="1000020390" src="https://github.com/user-attachments/assets/f04f8aa4-85a9-4616-998b-373457f6a40b" />
+
 
 </div>
 
