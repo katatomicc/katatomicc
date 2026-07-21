@@ -20,7 +20,7 @@ $$\color{#FDC4E5}\text{• HE/HIM OR IT/ITS. preferred pronouns fluctuate based 
 $$\color{#FDE0F7}\text{• I HAVE WEIRD HUMOR. which mainly consists of potty humor, nothing i say is serious}$$
 $$\color{#F2DCFF}\text{• PLEASE DONT copy, take heavy inspo from, or upload any of my skins to social media.}$$
 $$\color{#DFBEFE}\text{• W2I IS ENCOURAGED, im usually talking to friends or afk}$$
-$$\color{#CCA4FD}\text{• -15 PREFERABLY DNI}$$
+$$\color{#CCA4FD}\text{• -15 DNI}$$
 $$\color{#B78FEC}\text{• I BLOCK FREELY. anything that grosses me out will be hidden}$$
 
 if youre a friend, feel free to ask for my discord!
