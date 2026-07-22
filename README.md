@@ -23,6 +23,8 @@ $$\color{#DFBEFE}\text{• W2I IS ENCOURAGED, im usually talking to friends or a
 $$\color{#CCA4FD}\text{• -15 DNI}$$
 $$\color{#B78FEC}\text{• I BLOCK FREELY. anything that grosses me out will be hidden}$$
 
+more in-depth readme will be made...eventually (never)..
+
 if youre a friend, feel free to ask for my discord!
 
 
